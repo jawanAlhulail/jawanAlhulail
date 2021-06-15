@@ -1,5 +1,5 @@
-hiiiiii💕
-My name is jawan alhulail and I'm a Fullstack developer 🍧💻
+Hiiiiii💕
+My name is Jawan alhulail and I'm a Fullstack developer 🍧💻
 
 
 
