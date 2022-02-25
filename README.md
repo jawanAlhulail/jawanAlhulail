@@ -1,7 +1,8 @@
-Hiiiiii💕
+Hello💕
 My name is Jawan alhulail and I'm a Fullstack developer 🍧💻
 
-- 🌱 I rise in teamworks!
-- 🌈 I wanna build robots
+- 🌱 highschool student
+- 🌈 Barmej gradute 
+- 🎐  fully commited to kuwait codes
 
-i like lolipops btw 🍭 :)
+
