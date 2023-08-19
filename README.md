@@ -1,8 +1,8 @@
 Hello💕
 My name is Jawan alhulail and I'm a Fullstack developer 🍧💻
 
-- 🌱 highschool student
+- 🌱 TCD student
 - 🌈 Barmej gradute 
-- 🎐  fully commited to kuwait codes
+- 🎐 kuwait codes mentor
 
 
